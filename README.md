@@ -1,0 +1,2 @@
+# niko
+learn photography
